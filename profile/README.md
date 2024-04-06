@@ -15,9 +15,6 @@ We lay the digital foundation your business needs to operate efficiently and sec
 ### Digital Marketing
 In the vast digital landscape, visibility is key. Our digital marketing services are crafted to increase your online presence, engage your target audience, and drive growth. From SEO to social media marketing, we have the tools and expertise to make your brand stand out.
 
-## About Grayson Crozier
-With a passion for technology and a deep commitment to helping businesses thrive, Grayson Crozier founded Volare Solutions to bridge the gap between companies and their potential in the digital world. Grayson's approach is rooted in a belief that technology should empower businesses, not encumber them. Through Volare Solutions, he offers not just services but partnerships to navigate the digital challenges and opportunities together.
-
 ## Why Choose Us?
 - **Tailored Solutions:** Our services are not one-size-fits-all. We tailor our solutions to meet your unique business needs and goals.
 - **Expertise & Passion:** Led by Grayson Crozier, our team is a blend of expertise in technology and a passion for making a difference.
@@ -26,7 +23,7 @@ With a passion for technology and a deep commitment to helping businesses thrive
 ## Get in Touch
 Ready to take your business to new heights? Let's talk about how we can work together to turn the digital age into your biggest advantage.
 
-- **Email:** contact@volaresolutions.tech
+- **Email:** graysoncrozier40@gmail.com
 - **Website:** [www.volaresolutions.tech](http://www.volaresolutions.tech)
 
 Join us, and let's embark on a journey to digital excellence and business growth together.
