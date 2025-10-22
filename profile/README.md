@@ -12,7 +12,7 @@ Our mission is simple: to enable businesses to focus on what truly matters—the
 ## Get in Touch
 Ready to take your business to new heights? Let's talk about how we can work together to turn the digital age into your biggest advantage.
 
-- **Email:** graysoncrozier40@gmail.com & bailey15corner@gmail.com
+- **Email:** grayson@graybaysolutions.io & bailey@graybaysolutions.io
 - **Website:** [graybaysolutions.io](http://graybaysolutions.io)
 
 Join us, and let's embark on a journey to digital excellence and business growth together.
